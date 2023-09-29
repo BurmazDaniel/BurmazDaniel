@@ -1,4 +1,4 @@
-### Hi there 👋
+When you're not performing your duties do they keep you in a little box? Cells. Interlinked.
 
 <!--
 **BurmazDaniel/BurmazDaniel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
