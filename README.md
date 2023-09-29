@@ -1,4 +1,4 @@
-When you're not performing your duties do they keep you in a little box? Cells. Interlinked.
+When you're not performing your duties do they keep you in a little box? Cells. Cells. Interlinked. Interlinked.
 
 <!--
 **BurmazDaniel/BurmazDaniel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
